@@ -2,7 +2,7 @@
 ### Samwel Osward Mlabwa
 MSc Operational Research, University of Edinburgh (2025–2026)  
 Mastercard Foundation Scholar  
-📧 samwelmlabwa8@gmail.com | 🔗 [LinkedIn](your-linkedin-url)
+📧 samwelmlabwa8@gmail.com 
 
 ---
 
